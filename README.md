@@ -1,4 +1,4 @@
-# Gürkan Çamok | Gurkan Camok
+# Gürkan Çamok
 
 ## Digital Technology & Health Innovation Portfolio
 
